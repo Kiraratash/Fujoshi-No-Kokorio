@@ -1,0 +1,2 @@
+# Fujoshi-No-Kokorio
+Yaoi
